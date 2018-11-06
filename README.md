@@ -1,1 +1,0 @@
-# GeoorgeToovar.github.io
